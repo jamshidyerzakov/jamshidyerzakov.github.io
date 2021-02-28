@@ -1,1 +1,1 @@
-# jamshidyerzakov-ip-lab-2.github.io
+# jamshidyerzakov.github.io
